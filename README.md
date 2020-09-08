@@ -1,4 +1,4 @@
-### Hi there. I'm 简言. 👋
+### Hi there. I'm Jacklin Zhang(张杰霖). 👋
 
 ### 🌱 My stats on Github
 
